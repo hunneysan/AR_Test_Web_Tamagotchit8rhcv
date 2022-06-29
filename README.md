@@ -1,1 +1,0 @@
-# AR_Test_Web_Tamagotchit8rhcv
